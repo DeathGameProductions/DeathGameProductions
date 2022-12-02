@@ -12,5 +12,7 @@ Don't Trust Colors
 Links
 -----
 **Itch.io:** https://deathgameproductions.itch.io/
+
 **Discord Server:** https://discord.gg/pQKpNnyqHB
+
 **YouTube Channel:** https://www.youtube.com/channel/UCY7rTE7YJUHVO6VhjYOOumQ
